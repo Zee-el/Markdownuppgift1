@@ -21,6 +21,8 @@ Vill ni veta mer om vad en BMA gör så kan ni läsa om [BMA frågor och svar](h
 
 Jag vill prova något annat som inte är med naturvetenskap att göra.
 
+![til](https://tenor.com/view/hi-anime-funny-animals-cute-typist-gif-13720225.gif)
+
 -----
 
 ```
